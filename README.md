@@ -1,1 +1,1 @@
-# vnedrenitipodderzhkakomputernyhsistem
+# vnedrenie-i-podderzhka-komputernyh-sistem
