@@ -1,1 +1,1 @@
-# vnedrenie-i-podderzhka-komputernyh-sistem
+# vnedrenie-i-podderzhka-komputernyh-sistem-Eremina-Alexandra
